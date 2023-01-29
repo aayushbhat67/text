@@ -1,2 +1,2 @@
 # text
-text content is well-written 
+text content is brilliantly writen
